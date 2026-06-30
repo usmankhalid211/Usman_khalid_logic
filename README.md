@@ -1,1 +1,1 @@
-# Usman_khalid_logic
+[# Usman_khalid_logic](https://www.linkedin.com/posts/muhusmankhalid_dataanalytics-logicstack-internship-share-7477767001348755456-c_wE/?utm_source=share&utm_medium=member_android&rcm=ACoAAF6So-8BErpSsbAxLnxY-HtfXJShMG9FK70)
